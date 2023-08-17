@@ -5,5 +5,5 @@
 
 🤝🏻I’m looking to cooperate on different projects and tasks. 
 
-📩You can reach me by email (zohoor902123@tamu.edu)
+📩You can reach me by email (zohoornezhadhalafi@gmail.com)
 
